@@ -1,4 +1,4 @@
-🚀  GRC & Compliance Professional | InfoSec Enthusiast
+🚀 Compliance Professional | InfoSec Enthusiast
 🔐 Focusing on Governance, Risk Management, and Compliance (GRC), Security Audits, and Regulatory Compliance
 
 I am passionate about safeguarding organizations through risk management, auditing, and ensuring adherence to compliance frameworks such as ISO 27001, NIST, and GDPR. Skilled in assessing risk, performing internal audits, and developing policies for information security, I aim to support businesses in creating secure and compliant environments.
